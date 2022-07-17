@@ -1,1 +1,1 @@
-# .github
+# leuchtraketen GmbH
