@@ -1,1 +1,1 @@
-![leuchtraketen-logo](https://www.leuchtraketen.com/leuchtraketen-logo-ffffff.svg?v=3)
+![leuchtraketen-logo](https://www.leuchtraketen.com/leuchtraketen-logo-666666.svg?v=3)
